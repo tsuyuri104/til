@@ -1,0 +1,3 @@
+- 2025
+  - 0114（https://offers-jp.connpass.com/event/338478/）
+    - 調査する作業・ステップに価値がある
